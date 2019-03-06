@@ -1,2 +1,2 @@
 # blockchain-revolution
-There are a lot of articles about blockchain here.Gather them together for easy, come on!
+There are a lot of articles about blockchain here.Come on!Get it!
